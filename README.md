@@ -1,2 +1,2 @@
 Coming Soon.........
-Read the description for more info ->
+Read the description at top right for more info ->
